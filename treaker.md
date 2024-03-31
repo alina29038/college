@@ -1,0 +1,1 @@
+иконка: https://www.youtube.com/watch?v=230P99N8dLY&ab_channel=Ateros 3:30ff
